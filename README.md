@@ -5,7 +5,7 @@
 ---
 
 <div align="center">
- <img src="earth_inferno_1.png" width="300">
+ <img src="earth_inferno_1.png" width="500">
 </div>
 
 ---
