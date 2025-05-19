@@ -19,7 +19,7 @@
 
 ### 🇬🇧 原文
 
-👉 [Amazon.co.jp](https://www.amazon.co.jp/Anathema-Of-Zos/dp/B0013KXHXSd)
+👉 [クリックして読む](37355088-Austin-Osman-Spare-Earth-Inferno-1905-ocr.pdf)
 
 ---
 
