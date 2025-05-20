@@ -18,9 +18,9 @@
 幻想の饗宴を茶化しながら  
 やがて偽りの「真理」の帳を引き剥がし  
 彼は我らに見せた──  
-**世界（The World）**  
-**肉（The Flesh）**  
-そして **存在（The Being）** を  
+世界（The World）  
+肉（The Flesh）  
+そして 存在（The Being）を  
 
 **これがアルファであり、オメガである**  
 （This is the Alpha and Omega.）
