@@ -53,7 +53,7 @@
 >I must talk about things other than the good.<br>
 >― **Dante Alighieri**<br>
 
-[参考文献：goodreads> Quotable Quote](https://www.goodreads.com/quotes/651248-midway-along-the-journey-of-our-life-i-woke-to)
+#### [参考文献：goodreads> Quotable Quote](https://www.goodreads.com/quotes/651248-midway-along-the-journey-of-our-life-i-woke-to)
 ---
 
 #### p.24： ZOD-KIAの支配領域（ZOD-KIA'S DOMINION）
