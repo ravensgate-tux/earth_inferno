@@ -40,18 +40,18 @@
 **🐌知られざる呪術師による注釈**
 >最下位行にダンテの引用が1行ある。全文は以下の通り
 >
->Midway along the journey of our life
->I woke to find myself in a dark wood,
->for I had wandered off from the straight path.
+>Midway along the journey of our life<br>
+>I woke to find myself in a dark wood,<br>
+>for I had wandered off from the straight path.<br>
 >
->How hard it is to tell what it was like,
->this wood of wilderness, savage and stubborn
->(the thought of it brings back all my old fears),
+>How hard it is to tell what it was like,<br>
+>this wood of wilderness, savage and stubborn<br>
+>(the thought of it brings back all my old fears),<br>
 >
->a bitter place! Death could scarce be bitterer.
->But if I would show the good that came of it
->I must talk about things other than the good.”
->― **Dante Alighieri**
+>a bitter place! Death could scarce be bitterer.<br>
+>But if I would show the good that came of it<br>
+>I must talk about things other than the good.”<br>
+>― **Dante Alighieri**<br>
 
 ---
 
