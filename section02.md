@@ -78,7 +78,7 @@
 - 多くは互いに絡みつく、あるいは倒れかけている
 
 #### 下部の文字
-> DESTINY, HUMANITY, AND THE CHAOS OF CREATION.
+- DESTINY（運命）, HUMANITY（人間）, AND THE CHAOS OF CREATION（創造のカオス）.
 
 ---
 
