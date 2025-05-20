@@ -39,19 +39,14 @@
 
 #### p.30： この書の終わり（HERE ENDS THIS BOOK）
 
-#### ✍️ 詩句訳（オマル・ハイヤーム『ルバイヤート』より）
-
-> INDEED the Idols I have loved so long  
-> Have done my credit and the World much wrong:  
-> Have drown’d my glory in a shallow Cup  
-> And sold my Reputation for a song.
-
 たしかに、長年愛してきた偶像たちは  
 私の信用と、この世界に大いなる損失をもたらした  
 私の栄光は浅き杯に沈み  
 その名誉は一曲の歌と引き換えに売り払われた
 
-> ※『ルバイヤート』からの引用。スペアの諦念と美学がにじむ選定であり、  
+**ウマル・ハイヤーム**
+
+> ※『ルバイヤート』からの引用。スペアの美学がにじむ選定であり、  
 > 自身の芸術人生の虚無と栄光の矛盾を静かに示している。
 
 ---
