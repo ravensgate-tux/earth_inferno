@@ -13,7 +13,7 @@
 
 ### 🇯🇵 翻訳と注記
 
-#### if09.png：「Universal Woman」の見捨てられた姿
+#### p.09： 「Universal Woman」の見捨てられた姿
 
 > The desertion of the “Universal Woman,” lying barren  
 > On the Parapet of the Subconsciousness in humanity...  
