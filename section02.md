@@ -48,7 +48,7 @@
 
 - Foreword（序文） – p.4〜p.5
 - Frontispiece（図像詩） – p.8〜p.9
-- Dedication and Youth Unmasking（献辞と青年の仮面剥ぎ） – p.10〜p.11
+- Dedication and Youth Unmasking（献辞と仮面を脱ぐ若者） – p.10〜p.11
 - Of Myself and Portrait（自己の告白と自画像） – p.12〜p.13
 - The Allegory（寓話） – p.14〜p.15
 - The Argument（主張） – p.16〜p.17
