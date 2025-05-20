@@ -27,7 +27,7 @@
 #### p.13： 自画像（17歳）
 
 **PORTRAIT OF HISSELF AGED 17**  
-自画像。中央には若きスペアが立ち、足元に横たわる女性とともに描かれる。  
+自画像。中央には若きスペアが立ち、足元の女性とともに描かれる。  
 - 足元には「KIA」や「SIKAH」などの語句が円環状に記されている
 - テキストの一部：「BLESSED BE IKKAḤ SLEEP IS BETTER THAN WAKEFULNESS」
 
