@@ -42,7 +42,7 @@
 
 ---
 
-### p,05 図像注釈 「地獄の概観（SYNOPSIS OF INFERNO）」
+### p.05 図像注釈 「地獄の概観（SYNOPSIS OF INFERNO）」
 
 このページは『Earth Inferno』全体の思想構造を象徴的に示す図解である。
 
