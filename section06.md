@@ -50,9 +50,10 @@
 >
 >a bitter place! Death could scarce be bitterer.<br>
 >But if I would show the good that came of it<br>
->I must talk about things other than the good.”<br>
+>I must talk about things other than the good.<br>
 >― **Dante Alighieri**<br>
 
+[参考文献：goodreads> Quotable Quote](https://www.goodreads.com/quotes/651248-midway-along-the-journey-of-our-life-i-woke-to)
 ---
 
 #### p.24： ZOD-KIAの支配領域（ZOD-KIA'S DOMINION）
