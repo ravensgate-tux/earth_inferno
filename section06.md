@@ -36,7 +36,23 @@
 
 - 頭上には苦悶する人々、中央には白服の人物が沈黙し座っている
 - 床には猫らしい2匹の動物が見える
-  
+
+**🐌知られざる呪術師による注釈**
+>最下位行にダンテの引用が1行ある。全文は以下の通り
+>
+>Midway along the journey of our life
+>I woke to find myself in a dark wood,
+>for I had wandered off from the straight path.
+>
+>How hard it is to tell what it was like,
+>this wood of wilderness, savage and stubborn
+>(the thought of it brings back all my old fears),
+>
+>a bitter place! Death could scarce be bitterer.
+>But if I would show the good that came of it
+>I must talk about things other than the good.”
+>― **Dante Alighieri**
+
 ---
 
 #### p.24： ZOD-KIAの支配領域（ZOD-KIA'S DOMINION）
