@@ -17,8 +17,8 @@
 キリスト教的な儀式・教義がパロディ的に描かれ、信仰と知識の乖離がテーマ化されている。
 
 **主な根拠：**
-- **画像：p.11** 「YOUTH UNMASKS」── 若者が幻想から脱し、経験としての老年へ至る過程を描く比喩図。宗教的真理の喪失とも読める
-- **テキスト：p.12** 「OF MYSELF」── “Joy of the Round Feast” や “The all-prevailing woman” など、享楽や宗教的対象への懐疑・距離化が現れる
+- 画像：p.11 「YOUTH UNMASKS」── 若者が幻想から脱し、経験としての老年へ至る過程を描く比喩図。宗教的真理の喪失とも読める
+- テキスト：p.12 「OF MYSELF」── “Joy of the Round Feast” や “The all-prevailing woman” など、享楽や宗教的対象への懐疑・距離化が現れる
   
 ---
 
