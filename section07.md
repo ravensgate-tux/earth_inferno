@@ -75,6 +75,7 @@ CONTEMPT,
 BLASPHEMY. ─ 侮蔑、冒涜  
 GLUTTONY. ─ 貪欲  
 DESTINY & DEATH. ─ 運命と死  
+
 **人生の悪夢（LIFE'S NIGHTMARE）**
 
 ---
