@@ -54,7 +54,7 @@
 #### p.27： A REHEARSAL OF DESPAIR（絶望のリハーサル）
 
 **描写と注記**：
-# ✍️ 詩訳：p.27「A REHEARSAL OF DESPAIR（絶望の予行演習）」
+#### ✍️ 詩訳：p.27「A REHEARSAL OF DESPAIR（絶望の予行演習）」
 
 **EARTH**  
 **絶望の予行演習（A REHEARSAL OF DESPAIR）**
