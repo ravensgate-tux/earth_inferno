@@ -15,19 +15,14 @@
 
 ---
 
-#### p.09： 「Universal Woman」の見捨てられた姿
+#### p.09： 普遍的女性（Universal Woman）
 
-> The desertion of the “Universal Woman,” lying barren  
-> On the Parapet of the Subconsciousness in humanity...  
-> And with it a resurrection of the Primitive Woman.
+「普遍的女性」が見捨てられ
+人類の無意識の胸壁に、不毛のまま横たわっている
+人類は、慣習という深い奈落へと沈み込んでいく
 
-**訳と注記**：  
-文明の慣習が「普遍的なる女（Universal Woman）」を不毛にし、  
-人類は無意識の防壁の上で彼女を捨ててしまった。  
-しかし今、時代の終焉と共に「原初の女」が蘇る。
-
-- 普遍的な女性性の抑圧と、性的エネルギーの復活という対比
-- スペアにおけるアニマ的存在の再誕を象徴
+──見よ！時代の慣習はその終わりに近づいている
+やがてそこから、原初の女性が復活するのだ
 
 ---
 
