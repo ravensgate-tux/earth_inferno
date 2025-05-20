@@ -52,7 +52,7 @@ SLOTH ─ 怠惰
 PREJUDGMENT, etc. ─ 先入観など  
 DEBAUCHERY ─ 退廃  
 PLEASURE ─ 快楽  
-CONTEMPT,  
+CONTEMPT,─ 軽蔑
 BLASPHEMY. ─ 侮蔑、冒涜  
 GLUTTONY. ─ 貪欲  
 DESTINY & DEATH. ─ 運命と死  
