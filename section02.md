@@ -59,7 +59,53 @@
 - p.05は、『地上の地獄』の“思想マンダラ”であり、スペア宇宙観の原型図といえる
 
 - スペアの時代（1900年代初頭）は産業革命の末期にあたり、階級・労働・性の抑圧がテーマとして社会に広まっていた
- 
+
+---
+
+#### p.6 – TEXTUAL CONTENTS PAGE
+
+このページは『地上の地獄（Earth Inferno）』の全体構成を示す「目次ページ」である。
+
+- Foreword（序文） – p.4–5
+- Frontispiece（図像詩） – p.8–9
+- Dedication and Youth Unmasking – p.10–11
+- Of Myself and Portrait – p.12–13
+- The Allegory – p.14–15
+- The Argument – p.16–17
+- The Despair – p.18–19
+- Chaos – p.20–21
+- The Dwellers on the Threshold – p.22–23
+- ZOD-KIA's Dominion – p.24–25
+- Life’s Nightmare – p.26–27
+- Knowledge and Illusion – p.28–29
+- Finis – p.30
+
+**注釈**
+
+この目次構造は、単なるページガイドではなく、**スペアによる象徴的プロット構造**を示している可能性が高い。  
+とくに「Despair」「Chaos」「ZOD-KIA’s Dominion」「Finis」などは、スペアの世界観の節目を象徴している。
+
+---
+
+#### p.7 – VISUAL CONTENTS
+
+この図像は非常に象徴的で、中央の男性像を中心に、周囲に複数の人物が絡みつくように配置されている。
+
+#### 🧍 中央の人物
+- 一見して自信に満ちた裸体男性。
+- 右脚に布を巻いており、生殖器を隠している。
+- 「ZOS的身体」を象徴している可能性がある。
+
+#### 🔁 周囲の人物たち
+- 多くは彼に絡みつく、あるいは倒れかけているような姿勢。
+- 肉体的欲望、精神的重圧、人間関係の束縛などを示唆。
+
+#### 🌀 下部の文言
+> DESTINY, HUMANITY, AND THE CHAOS OF CREATION.
+
+- これは、スペアにとってこの書が単なる「地獄図」ではなく、**運命・人間性・創造の混沌**という3つの軸で成立していることを示す
+- p.6–7 は単なる「目次」ではなく、**スペアの思想構造を抽象的に提示する導入部**である  
+
 ---
 
 © 2025 知られざる呪術師（Le Sorcier Inconnu）  
