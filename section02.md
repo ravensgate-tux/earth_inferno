@@ -76,17 +76,17 @@
 
 このページは『地上の地獄（Earth Inferno）』の全体構成を示す「目次ページ」である。
 
-- Foreword（序文） – p.4–5
-- Frontispiece（図像詩） – p.8–9
-- Dedication and Youth Unmasking – p.10–11
-- Of Myself and Portrait – p.12–13
-- The Allegory – p.14–15
-- The Argument – p.16–17
-- The Despair – p.18–19
-- Chaos – p.20–21
-- The Dwellers on the Threshold – p.22–23
-- ZOD-KIA's Dominion – p.24–25
-- Life’s Nightmare – p.26–27
+- Foreword（序文） – p.4〜p.5
+- Frontispiece（図像詩） – p.8〜p.9
+- Dedication and Youth Unmasking（献辞と青年の仮面剥ぎ） – p.10〜p.11
+- Of Myself and Portrait（自己の告白と自画像） – p.12〜p.13
+- The Allegory（寓話） – p.14〜p.15
+- The Argument（主張） – p.16〜p.17
+- The Despair（絶望） – p.18〜p.19
+- Chaos（カオス） – p.20〜p.21
+- The Dwellers on the Threshold（境界に棲まう者たち） – p.22〜p.23
+- ZOD-KIA's Dominion（ZOD-KIAの支配領域） – p.24〜p.25
+- Life’s Nightmare（人生の悪夢） – p.26〜p.27
 - Knowledge and Illusion – p.28–29
 - Finis – p.30
 
