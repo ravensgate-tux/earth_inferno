@@ -59,7 +59,9 @@
 #### 地獄の前段階（ダンテ『神曲』地獄篇 第3歌 22–30）
 
 **THIS GULF, AND EKE THE FOLK WHICH IT POSSESS.**
-69 地獄の深淵［下層地獄］とそれが所有する民を。
+
+69 地獄の深淵［下層地獄］とそれが所有する民を。  
+
 （[ダンテ『神曲』地獄編第11歌69：帝京大学 藤谷道夫訳](https://appsv.main.teikyo-u.ac.jp/tosho/mfujitani16.pdf)）
 
 22 ここではうめき声、泣き声、甲高い悲鳴が  
