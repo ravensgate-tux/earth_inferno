@@ -26,7 +26,6 @@
 
 #### p.14： 寓話（The Allegory）
 
-地上の寓意（THE ALLEGORY OF EARTH）  
 名もなき黒衣の人物を  
 私は「生命の知」と呼ぶ  
 そして彼に、「シカハ（SIKAH）」という名を与える  
