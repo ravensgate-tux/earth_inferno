@@ -87,8 +87,8 @@
 - The Dwellers on the Threshold（境界に棲まう者たち） – p.22〜p.23
 - ZOD-KIA's Dominion（ZOD-KIAの支配領域） – p.24〜p.25
 - Life’s Nightmare（人生の悪夢） – p.26〜p.27
-- Knowledge and Illusion – p.28–29
-- Finis – p.30
+- Knowledge and Illusion（知識と幻想） – p.28〜p.29
+- Finis（終章） – p.30
 
 **注釈**
 
