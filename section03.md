@@ -20,7 +20,7 @@
 - 画像：p.11「YOUTH UNMASKS」  
 　若者が仮面を剥がし、自己の内部に向かう構図は、精神的変容の暗示。
 - テキスト：p.12「OF MYSELF」  
-　“Jewel in the Lotus”“the all-prevailing woman” など、外部の神ではなく、**内なる神性・フェミニンの導き**が語られる。
+　“Jewel in the Lotus”“the all-prevailing woman” など、外部の神ではなく、内なる神性が語られる。
 
 このセクションは、外在的宗教ではなく、**個人の内面における目覚めと霊的自己への出発**を主題とする。
   
